@@ -1,2 +1,3 @@
 # Moana12
-New on github
+Hi my dear.
+My name's Moana, I love food and volley-ball
